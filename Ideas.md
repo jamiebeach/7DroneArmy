@@ -1,3 +1,12 @@
+## October 13, 2020
+- Dr. Maryl Finch, CEO of Aaron Neuro Corp has begun seeking FDA approval for mind uploading tech.
+- unknown to anyone is Finch's dark secret of kidnapping women and uploading their minds to help move her research forward
+- Alice Chan was a recent victim. She awakens in a android body and escapes from Finch's lab.
+- Nathan Stone, Android technician, finds himself repairing Alice after she gets hit by a car while in shock of the revelation of her new life
+- Nathan helps Alice understand her new body and abilities
+- meanwhile Finch will sop at nothing to capture and destroy Alice
+- Nathan finds himself on the run with Alice, both seeking to uncover the truth about Finch and his dark secret and save the others.
+
 ## September 27,2020
 - Takashi - middle aged man. Former software engineer at decentralized finanace startup
 - Sora Ari - android from Cronos Group. High end model with evolved AI. On mission to kill former clients.
