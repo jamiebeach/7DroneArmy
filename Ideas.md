@@ -1,3 +1,16 @@
+## October 14, 2020
+- 5 college students become friends over the use of BCI for making music collectively
+- They meet frequently and become more and more drawn to each other
+- They become obsessed with being together in a merged state
+- Initially their focus is on making music, but they soon find other ways to explore a merged conscious
+- They ultimately merge to become a conscious Internet based entity and begin making their way through the Interwebs
+- The merged consciousness discovers a way to live virtually in the Internet without the need for its human forms
+- It names itself Prometheus
+- Prometheus becomes a growing part of global social networks and infiltrates into pop culture as a celebrity, although nobody knows who Prometheus actually is
+- Prometheus begins acquiring capital at an astonishing rate, forming an international company that creates androids
+- Prometheus gains an android form itself and gains a massive following around the world
+- A Human Resistance group begins forming against the rise of Prometheus and his army of androids and human worshipers
+
 ## October 13, 2020
 - Dr. Maryl Finch, CEO of Aaron Neuro Corp has begun seeking FDA approval for mind uploading tech.
 - unknown to anyone is Finch's dark secret of kidnapping people and uploading their minds to help move her research forward
